@@ -1,6 +1,6 @@
 John Olivers **Last Week Tonight** [Video on Trump as President Elect](https://youtu.be/Uv06XdjbVIM).
 
-Calls on us all to stay and fight. Monitoring Legislation that is going through.  Voting.  (Remember both Trump & Pence [have pledged to curtail womens rights to abortion](http://www.reuters.com/article/us-usa-abortion-donations-idUSKBN13A2L8), and Trump has said Roe v Wade should be over-turned & he would appoint an anti-abortion justice to the Supreme Court.)
+Oliver calls on us all to stay and fight, monitoring legislation, and voting.  Remember both Trump & Pence [have pledged to curtail womens rights to abortion](http://www.reuters.com/article/us-usa-abortion-donations-idUSKBN13A2L8), and Trump has said women who get abortions should be punished, that Roe v Wade should be over-turned and that he would appoint an anti-abortion justice to the Supreme Court.
 
 Giving time or money to:
 
@@ -16,7 +16,10 @@ The president-elect is masterful denier of both reality and responsibility. His 
 
 _If I become President oh, do they have such problems.  I will open up the libel laws, so that when they write purposely negative, and horrible and false articles we can sue them._
 
-You need to support actual journalism by buying a subscription to actual newspapers New York Times or the Washington Post
+You need to support actual journalism by buying a subscription to actual newspapers:
+
+* [New York Times](https://www.nytimes.com/subscriptions/inyt/lp87JWF.html) 
+* [Washington Post](https://subscribe.washingtonpost.com/acqbeta/#/offers/promo/digital07)
 
 This is not normal.  Write it on a post-it note and stick it on your fridge.
 
