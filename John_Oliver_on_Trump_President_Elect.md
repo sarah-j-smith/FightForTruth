@@ -5,7 +5,7 @@ Calls on us all to stay and fight. Monitoring Legislation that is going through.
 Giving time or money to:
 
 * [Planned parenthood](https://www.plannedparenthood.org)
-* Center for Reproductive Rights
+* [Center for Reproductive Rights](https://www.reproductiverights.org)
 * [National Resource Defense Council](https://www.nrdc.org) 
 * [International Refugee Assistance Project](http://www.refugeerights.org)
 * [NAACP](http://www.naacp.org)
